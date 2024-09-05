@@ -4,7 +4,7 @@ I'm so glad you stopped by! Here's a little bit about me:
 
 👩‍💻 I love coding and building cool stuff.
 📚 I'm always learning new things and improving my skills.
-🐱 I'm a cat lover and I have 1 cute dogs named Teddy 🐕
+🐱 I'm a dogs lover and I have 1 cute dogs named Teddy 🐕
 🎮 In my free time, I like to play video games and explore new ones.
 📫 You can find me on https://www.linkedin.com/in/ramtin-landgraab-a8659a225
 
